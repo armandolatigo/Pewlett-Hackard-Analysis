@@ -46,3 +46,5 @@ After thinking of new queries about the mentorship program a BIGGER problem was 
 They don't need a mentorship program they need to hire young people, in fact they just need to hire, from the data shown they have not hired anyone in what may be DECADES.
 
 If they're planning for retirement age to be between 65 and 70 they really need to re-think their business model for the next 10 years or they will have ZERO staff by then. 
+
+This is an urgent matter and it must be addressed yesterday.
